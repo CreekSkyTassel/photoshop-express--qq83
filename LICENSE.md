@@ -1,4 +1,4 @@
-
+Enhance Photoshop Express for macOS with Photoshop Express for macOS ultimate Script: auto-enhance & stock-assets-integration, the #1 script. Includes auto-enhance and
 
 
 
